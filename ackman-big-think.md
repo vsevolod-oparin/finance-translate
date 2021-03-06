@@ -1,6 +1,6 @@
 # Вилльям Акман: Все, что вы должны знать о финансах и инвестициях меньше чем за час. Big Think
 
-Оригинал: (https://www.youtube.com/watch?v=WEDIj9JBTC8)[William Ackman: Everything You Need to Know About Finance and Investing in Under an Hour | Big Think]
+Оригинал: [https://www.youtube.com/watch?v=WEDIj9JBTC8](William Ackman: Everything You Need to Know About Finance and Investing in Under an Hour | Big Think)
 
 Привет, меня зовут Билл Аккман, я - СEO Першинг Сквер Капитал Менеджмент.
 
